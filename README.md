@@ -12,7 +12,7 @@ In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniveristät 
 
 ## Zeit und Ort
 
-Zeit: Mittwochs, jeweils 16-18.00 Uhr  
+Zeit: Mittwochs, jeweils 15.30-17.00 Uhr  
 Ort: Zoom  
 
 https://us02web.zoom.us/j/88319828146?pwd=OG1jY3MwQzlRdkdyNHVJZEtvR0UrUT09  
