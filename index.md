@@ -1,8 +1,9 @@
+# Seminar Anti-Social Distancing: Master's Meet & Greet
+
 Sommersemester 2020 - Filmuniversität Babelsberg *KONRAD WOLF*
 
 ---
 
-# Seminar Anti-Social Distancing: Master's Meet & Greet
 
 In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniveristät besser kennenzulernen. Das Format sieht folgendermaßen aus:
 
