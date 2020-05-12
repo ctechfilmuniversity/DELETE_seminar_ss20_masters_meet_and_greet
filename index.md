@@ -24,3 +24,5 @@ Password: meetgreet
 Bitte meldet Euch bis zum **15.5.2020 bei l.gieseke@filmuniversitaet.de** an. Wenn möglich, schreibt gleich dazu, an welchen Mittwochsterminen Ihr ggf. nicht teilnehmen könnt.  
 
 Spontane Teilnahmen sind auch möglich - machen aber die Teamzusammenstellung schwieriger.
+
+---
