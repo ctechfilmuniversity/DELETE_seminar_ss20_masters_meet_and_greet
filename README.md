@@ -1,4 +1,6 @@
-Sommersemester 20 - Filmuniversität Babelsberg *KONRAD WOLF*
+Sommersemester 2020 - Filmuniversität Babelsberg *KONRAD WOLF*
+
+---
 
 # Seminar Anti-Social Distancing: Master's Meet & Greet
 
@@ -10,14 +12,16 @@ In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniveristät 
 
 ## Zeit und Ort
 
-Zeit: Mittwochs, jeweils 16-18.00 Uhr
-Ort: Zoom
+Zeit: Mittwochs, jeweils 16-18.00 Uhr  
+Ort: Zoom  
 
-https://us02web.zoom.us/j/88319828146?pwd=OG1jY3MwQzlRdkdyNHVJZEtvR0UrUT09
+https://us02web.zoom.us/j/88319828146?pwd=OG1jY3MwQzlRdkdyNHVJZEtvR0UrUT09  
 
-Meeting ID: 883 1982 8146
-Password: meetgreet
+Meeting ID: 883 1982 8146  
+Password: meetgreet  
 
 ## Anmeldung
 
-Bitte tragt Euch, wenn möglich, jede Woche vor dem Seminar bis 14 Uhr in folgender Liste ein, damit die Team sinnvoll zusammengestellt werden können. Spontane Teilnahmen sind auch möglich.
+Bitte meldet Euch bis zum 15.5.2020 bei l.gieseke@filmuniversitaet an.  
+
+Spontane Teilnahmen sind auch möglich - machen aber die Teamzusammenstellung schwieriger.
