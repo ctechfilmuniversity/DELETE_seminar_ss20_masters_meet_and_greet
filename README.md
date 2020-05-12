@@ -13,9 +13,7 @@ In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniveristät 
 ## Zeit und Ort
 
 Zeit: Mittwochs, jeweils 15.30-17.00 Uhr  
-Ort: Zoom  
-
-https://us02web.zoom.us/j/88319828146?pwd=OG1jY3MwQzlRdkdyNHVJZEtvR0UrUT09  
+Ort: [Zoom](https://us02web.zoom.us/j/88319828146?pwd=OG1jY3MwQzlRdkdyNHVJZEtvR0UrUT09)    
 
 Meeting ID: 883 1982 8146  
 Password: meetgreet  
