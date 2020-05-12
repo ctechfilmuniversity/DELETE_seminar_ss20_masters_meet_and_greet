@@ -2,7 +2,6 @@ Sommersemester 2020 - Filmuniversität Babelsberg *KONRAD WOLF*
 
 ---
 
-
 In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniveristät besser kennenzulernen. Das Format sieht folgendermaßen aus:
 
 - Zu Beginn jeder Session werden 2-4er Teams so zusammengestellt, dass sich die Teammitglieder möglichst noch nicht kennen.
@@ -14,9 +13,9 @@ In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniveristät 
 ## Zeit und Ort
 
 Zeit: Mittwochs, jeweils 15.30-17.00 Uhr  
-Ort: [Zoom](https://us02web.zoom.us/j/88319828146?pwd=OG1jY3MwQzlRdkdyNHVJZEtvR0UrUT09)    
+Ort: [Zoom Meeting](https://us02web.zoom.us/j/88319828146?pwd=OG1jY3MwQzlRdkdyNHVJZEtvR0UrUT09)    
 
-Meeting ID: 883 1982 8146  
+ID: 883 1982 8146  
 Password: meetgreet  
 
 ## Anmeldung
