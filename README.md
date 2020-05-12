@@ -12,7 +12,7 @@ In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniveristät 
 
 ## Zeit und Ort
 
-Zeit: Mittwochs, jeweils 15.30-17.00 Uhr  
+Zeit: Mittwochs, jeweils 15.30-17.00 Uhr (erste Session ist am 20.05.2020 )
 Ort: [Zoom Meeting](https://us02web.zoom.us/j/88319828146?pwd=OG1jY3MwQzlRdkdyNHVJZEtvR0UrUT09)    
 
 ID: 883 1982 8146  
