@@ -6,7 +6,7 @@ In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniversität 
 
 - Zu Beginn jeder Session werden 2-4er Teams so zusammengestellt, dass sich die Teammitglieder möglichst noch nicht kennen.
 - Jede Woche gibt es einen Reihe an verschiedener Fragen, über die im Team gesprochen werden können - aber nicht müssen! Ihr seid völlig frei Eure Gespräche zu gestalten.
-- Als Abschluss hinterlasst Ihr Gedanken, Notizen, Bilder, etc. auf dem gemeinsamen Miro-Board (wird noch bereitgestellt).
+- Als Abschluss hinterlasst Ihr Gedanken, Notizen, Bilder, etc. auf dem gemeinsamen [Miro-Board](https://miro.com/welcomeonboard/NHIGioq1QrUiKjM5QjdPXgtjg2Ql3iEpkD8bzQtTBvNW82WNil00YbHBVCITUZNq).
 
 ---
 
