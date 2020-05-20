@@ -2,7 +2,7 @@ Sommersemester 2020 - Filmuniversität Babelsberg *KONRAD WOLF*
 
 ---
 
-In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniveristät besser kennenzulernen. Das Format sieht folgendermaßen aus:
+In diesem Seminar geht es darum, andere Masterstudierenden der Filmuniversität besser kennenzulernen. Das Format sieht folgendermaßen aus:
 
 - Zu Beginn jeder Session werden 2-4er Teams so zusammengestellt, dass sich die Teammitglieder möglichst noch nicht kennen.
 - Jede Woche gibt es einen Reihe an verschiedener Fragen, über die im Team gesprochen werden können - aber nicht müssen! Ihr seid völlig frei Eure Gespräche zu gestalten.
@@ -26,3 +26,20 @@ Bitte meldet Euch bis zum **15.5.2020 bei l.gieseke@filmuniversitaet.de** an. We
 Spontane Teilnahmen sind auch möglich - machen aber die Teamzusammenstellung schwieriger.
 
 ---
+
+## Treffen am 20.05.2020
+
+Ihr seid frei darin Eure Gespräche zu gestalten. Damit der Einstieg in das Gespräch leichter fällt, könntet Ihr Euch folgenden Fragen stellen:
+
+* Was studiert Ihr und warum habt Ihr Euch für dieses Studium entschieden?
+* Welche Themen und Projekte inspirieren Euch in Eurem Studium?
+* Wo sieht Ihr Verknüpfungspunkte zu einander?
+* Wie könnte ein gemeinsames Projekt aussehen?
+* Wisst Ihr von bestehenden Lehrveranstaltungen, die Dein Gegenüber als Wahlfach interessant finden könnte?
+* Wie könnte eine gemeinsame Lehrveranstaltung aussehen? Was würdet Ihr Euch hier von Lehrenden wünschen?
+
+
+
+
+
+
