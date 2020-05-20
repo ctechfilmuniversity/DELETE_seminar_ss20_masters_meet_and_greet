@@ -41,7 +41,7 @@ Feel free to do everything in English.
 
 * Was studiert Ihr und warum habt Ihr Euch für dieses Studium entschieden?
 * Welche Themen und Projekte inspirieren Euch in Eurem Studium?
-* Wo sieht Ihr Verknüpfungspunkte zu einander?
+* Wo sieht Ihr Verknüpfungspunkte zueinander?
 * Wie könnte ein gemeinsames Projekt aussehen?
 * Wisst Ihr von bestehenden Lehrveranstaltungen, die Dein Gegenüber als Wahlfach interessant finden könnte?
 * Wie könnte eine gemeinsame Lehrveranstaltung aussehen? Was würdet Ihr Euch hier von Lehrenden wünschen?
