@@ -31,6 +31,8 @@ Spontane Teilnahmen sind auch möglich - machen aber die Teamzusammenstellung sc
 
 Ihr seid frei darin Eure Gespräche zu gestalten. Damit der Einstieg in das Gespräch leichter fällt, könntet Ihr Euch die folgenden Fragen stellen.
 
+Bitte hinterlasst Gedanken, Notizen, Bilder, etc. auf dem gemeinsamen [Miro-Board](https://miro.com/welcomeonboard/NHIGioq1QrUiKjM5QjdPXgtjg2Ql3iEpkD8bzQtTBvNW82WNil00YbHBVCITUZNq).
+
 Feel free to do everything in English 🙂
 
 ### 20.05.2020
