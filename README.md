@@ -35,7 +35,7 @@ Bitte hinterlasst Gedanken, Notizen, Bilder, etc. auf dem gemeinsamen [Miro-Boar
 
 Feel free to do everything in English.
 
-[Gruppen](https://owncloud.gwdg.de/index.php/s/0ZipX9UM0OU96U3)
+[Gruppen](https://owncloud.gwdg.de/index.php/apps/onlyoffice/s/0ZipX9UM0OU96U33)
 
 ### 20.05.2020
 
