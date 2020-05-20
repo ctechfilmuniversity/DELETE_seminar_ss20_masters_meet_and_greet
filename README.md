@@ -31,6 +31,8 @@ Spontane Teilnahmen sind auch möglich - machen aber die Teamzusammenstellung sc
 
 Ihr seid frei darin Eure Gespräche zu gestalten. Damit der Einstieg in das Gespräch leichter fällt, könntet Ihr Euch die folgenden Fragen stellen.
 
+Feel free to do everything in English 🙂
+
 ### 20.05.2020
 
 * Was studiert Ihr und warum habt Ihr Euch für dieses Studium entschieden?
