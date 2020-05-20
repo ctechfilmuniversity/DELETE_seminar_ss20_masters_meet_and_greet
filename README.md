@@ -27,9 +27,11 @@ Spontane Teilnahmen sind auch möglich - machen aber die Teamzusammenstellung sc
 
 ---
 
-## Treffen am 20.05.2020
+## Treffen
 
-Ihr seid frei darin Eure Gespräche zu gestalten. Damit der Einstieg in das Gespräch leichter fällt, könntet Ihr Euch folgenden Fragen stellen:
+Ihr seid frei darin Eure Gespräche zu gestalten. Damit der Einstieg in das Gespräch leichter fällt, könntet Ihr Euch die folgenden Fragen stellen.
+
+### 20.05.2020
 
 * Was studiert Ihr und warum habt Ihr Euch für dieses Studium entschieden?
 * Welche Themen und Projekte inspirieren Euch in Eurem Studium?
