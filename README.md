@@ -43,7 +43,7 @@ Feel free to do everything in English.
 * Wie könnte ein gemeinsames Projekt aussehen?
 * Wisst Ihr von bestehenden Lehrveranstaltungen, die Dein Gegenüber als Wahlfach interessant finden könnte?
 * Wie könnte eine gemeinsame Lehrveranstaltung aussehen? Was würdet Ihr Euch hier von Lehrenden wünschen?
-* Was könnte man an der Filmuni im Positiven verändern (*how to make the Filmuni a better place?* 😁)?
+* Was könnte man an der Filmuni im Positiven verändern (*how to make the Filmuni a better place* 😁)?
 
 
 
