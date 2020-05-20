@@ -35,6 +35,8 @@ Bitte hinterlasst Gedanken, Notizen, Bilder, etc. auf dem gemeinsamen [Miro-Boar
 
 Feel free to do everything in English.
 
+[Gruppen](https://owncloud.gwdg.de/index.php/s/0ZipX9UM0OU96U3)
+
 ### 20.05.2020
 
 * Was studiert Ihr und warum habt Ihr Euch für dieses Studium entschieden?
