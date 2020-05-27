@@ -47,6 +47,17 @@ Feel free to do everything in English.
 * Wie könnte eine gemeinsame Lehrveranstaltung aussehen? Was würdet Ihr Euch hier von Lehrenden wünschen?
 * Was könnte man an der Filmuni im Positiven verändern (*how to make the Filmuni a better place* 😁)?
 
+### 27.05.2020
+
+Ihr könnt auch gerne die Fragen von letzter Woche in dieser Woche wieder aufgreifen. Ansonsten schlage ich folgende Diskussionspunkte vor, die sich auf den Tag der Diversität beziehen, der gestern war (was auch immer das sein soll...)
+
+* Was bedeutet Diversität für Euch?
+* Welche Auswirkungen haben Vielfalt oder aber auch fehlende Vielfalt für unsere Gesellschaft und Arbeitswelt?
+* Was könnten wir an der Filmuni ändern, um die Diversität an der Uni zu fördern?
+* Habt Ihr Projektideen die sich damit beschäftigen über fehlende Vielfalt aufzuklären und Ängst vor Vielfalt zu nehmen? Zum Beispiel in den ländlichen Gebieten in Brandenburg ist die Diversität der Gesellschaft sehr eingeschränkt, gleichzeitig hat die Bevölkerung große Angst underanderem vor Zuziehenden. Wie könnte man hier mit einem Projekt zu einer Öffnung für mehr Diversität beitragen?
+
+
+
 
 
 
