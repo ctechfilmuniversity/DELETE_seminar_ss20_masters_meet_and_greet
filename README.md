@@ -49,12 +49,24 @@ Feel free to do everything in English.
 
 ### 27.05.2020
 
-Ihr könnt auch gerne die Fragen von letzter Woche in dieser Woche wieder aufgreifen. Ansonsten schlage ich folgende Diskussionspunkte vor, die sich auf den Tag der Diversität beziehen, der gestern war (was auch immer das sein soll...)
+Ihr könnt auch gerne die Fragen von letzter Woche in dieser Woche wieder aufgreifen. Ansonsten schlage ich folgende Diskussionspunkte vor, die sich auf den Tag der Diversität beziehen, der gestern war (was auch immer das sein soll...).
 
 * Was bedeutet Diversität für Euch?
 * Welche Auswirkungen haben Vielfalt oder aber auch fehlende Vielfalt für unsere Gesellschaft und Arbeitswelt?
 * Was könnten wir an der Filmuni ändern, um die Diversität an der Uni zu fördern?
 * Habt Ihr Projektideen die sich damit beschäftigen über fehlende Vielfalt aufzuklären und Ängst vor Vielfalt zu nehmen? Zum Beispiel in den ländlichen Gebieten in Brandenburg ist die Diversität der Gesellschaft sehr eingeschränkt, gleichzeitig hat die Bevölkerung große Angst underanderem vor Zuziehenden. Wie könnte man hier mit einem Projekt zu einer Öffnung für mehr Diversität beitragen?
+
+### 03.06.2020
+
+Ihr könnt auch gerne die Fragen der letzten Wochen in dieser Woche wieder aufgreifen. Ansonsten schlage ich folgende Diskussionspunkte vor, die sich auf die verschiedenen Formen des Bürgeraufbegehrens, die wir aktuell erleben, beziehen.
+
+* Wie steht Ihr zu der Demo gegen das Sterben der Clubkultur, die am Sonntag in Berlin statt gefunden hat? Es waren ca. 400 Boote mit insgesamt 3.000 Menschen versammelt ohne die aktuellen Abstandsregeln einzuhalten. Die Demo endete vor dem Kreuzberger Klinikum Am Urban, wo die Gäste dann feierten und zum Rave von den Booten tanzten (siehe z.B. [rbb24](https://www.rbb24.de/panorama/beitrag/2020/06/berlin-friedrichshain-kreuzberg-treptow-koepenick-3000-menschen-demo-schlauchboote-clubkultur-landwehrkanal.html)). 
+* Braucht unsere Gesellschaft auch diese Form des friedlichen Aufbegehrens und wird dadurch gestärkt oder sollte in der aktuellen Lage auf bestimmte Aktionen verzichtet werden?
+* Findet Ihr es gerechtfertigt, dass z.B. an Unis der Betrieb weiterhin stark eingeschränkt ist (natürlich sind wir in unserer Situtation nichtsdestotrotz absolut priviligiert im Vergleich), gleichzeitig aber z.B. die Bundesliga statt findet? Oder ist das ein Vergleich von Äpfel und Birnen?
+* Wie steht Ihr zu den teilweise gewaltätigen Protesten in den USA? Ist diese extreme Form des Aufbegehrens notwendig, um die eklatanten Missstände zu ändern? Welche Auswirkungen haben die Ausschreitungen auf die Gesellschafft?
+* Wie könnten alternative Formen des Protestes in den USA aussehen?
+* Wir kann Kunst zu einem Bürgeraufbegehren beitragen? Welche Macht hat Kunst hier? Wie könnte ein künstlerisches Protest-Projekt aussehen?
+
 
 
 
