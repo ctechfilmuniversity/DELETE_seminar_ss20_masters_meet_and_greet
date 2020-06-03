@@ -66,7 +66,7 @@ Ihr könnt auch gerne die Fragen der letzten Wochen in dieser Woche wieder aufgr
 * Welche Rolle spielt Gerechtigkeit überhaupt in Zeiten von Corona?
 * Wie steht Ihr zu den teilweise gewaltätigen Protesten in den USA? Ist diese extreme Form des Aufbegehrens notwendig, um die eklatanten Missstände zu ändern? Welche Auswirkungen haben die Ausschreitungen auf die Gesellschafft?
 * Wie könnten alternative Formen des Protestes in den USA aussehen?
-* Wir kann Kunst zu einem Bürgeraufbegehren beitragen? Welche Macht hat Kunst hier? Wie könnte ein künstlerisches Protest-Projekt aussehen?
+* Was kann Kunst zu einem Bürgeraufbegehren beitragen? Welche Macht hat Kunst hier? Wie könnte ein künstlerisches Protest-Projekt aussehen?
 
 
 
