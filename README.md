@@ -68,7 +68,26 @@ Ihr könnt auch gerne die Fragen der letzten Wochen in dieser Woche wieder aufgr
 * Wie könnten alternative Formen des Protestes in den USA aussehen?
 * Was kann Kunst zu einem Bürgeraufbegehren beitragen? Welche Macht hat Kunst hier? Wie könnte ein künstlerisches Protest-Projekt aussehen?
 
+### 10.06.2020
 
+Hier eine Auswahl an möglichen Themen für Eure Gespräche.
+
+#### Käufliche Kunst?
+
+In der Kunstszene herrscht bei Zeiten unterschwellig die Annahme, dass nur unabhängige Projekte, frei von jeglichen technischen oder ästhetischen Anforderungen und Kunden-Wünschen "wahre" Kunst ist. Stimmt das? Ist kommerziell erfolgreiche Kunst, schlechtere Kunst und wenn ja, warum? Mit kommerziell erfolgreich meine ich hier nicht die paar wenigen super-Künstler wie Gerhard Richter, Neo Rauch oder Banksy, sondern Künstler*innen, die z.B. ihre Werke für Banken entwickeln, etc. Wo ist die Grenze zwischen Kunst und Kommerz? Warum werden Werke, die der Masse gefallen, wie zum Beispiel Musicals oder Computer Spiele schnell als wenig künstlerisch abgetan? Ist es nicht eine Kunst so vielen Menschen zu gefallen?
+
+#### Kunst und Social Media?
+
+Welche Rolle, denkt Ihr spielt Social Media und Selbstmarketing für eine Karriere als Künstler*in? 
+
+#### Kunst vs. Künstler
+
+Kann und darf man ein Kunstwerk von seine*r Erschaffer*in trennen? Immer mehr Künstler*innen werden auf Grund von unrechtem Verhalten aus der Industrie verbannt und zum Teil mit Ihnen Ihre Werke. Ist dieses das richtige Verfahren? Dürfen wir Wagner hören, obwohl er Antisemit war, aber nicht mehr Roseanne gucken, weil sie sich kürzlich rassistisch geäußert hat? Wo sind hier die Grenzen und wenn ja warum?
+
+
+#### Kunst vs. Political Correctness
+
+Unserer Gesellschaft legt immer mehr Wert auf political correctness (Duden: Einstellung, die alle Ausdrucksweisen und Handlungen ablehnt, durch die jemand aufgrund seiner ethnischen Herkunft, seines Geschlechts, seiner Zugehörigkeit zu einer bestimmten sozialen Schicht, seiner körperlichen oder geistigen Behinderung oder sexuellen Neigung diskriminiert wird) in unserem alltäglichen Verhalten. Wie weit sollten diese Verhaltensweisen in der Kunst internalisiert werden? Wie weit darf man mit Kunst gehen?
 
 
 
