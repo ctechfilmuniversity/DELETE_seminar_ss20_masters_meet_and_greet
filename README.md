@@ -80,9 +80,9 @@ In der Kunstszene herrscht bei Zeiten unterschwellig die Annahme, dass nur unabh
 
 Welche Rolle, denkt Ihr spielt Social Media und Selbstmarketing für eine Karriere als Künstler*in? 
 
-#### Kunst vs. Künstler
+#### Kunst vs. Künstler\*innen
 
-Kann und darf man ein Kunstwerk von seine*r Erschaffer*in trennen? Immer mehr Künstler*innen werden auf Grund von unrechtem Verhalten aus der Industrie verbannt und zum Teil mit Ihnen Ihre Werke. Ist dieses das richtige Verfahren? Dürfen wir Wagner hören, obwohl er Antisemit war, aber nicht mehr Roseanne gucken, weil sie sich kürzlich rassistisch geäußert hat? Wo sind hier die Grenzen und wenn ja warum?
+Kann und darf man ein Kunstwerk von seine\*r Erschaffer\*in trennen? Immer mehr Künstler\*innen werden auf Grund von unrechtem Verhalten aus der Industrie verbannt und zum Teil mit Ihnen Ihre Werke. Ist dieses das richtige Verfahren? Dürfen wir Wagner hören, obwohl er Antisemit war, aber nicht mehr Roseanne gucken, weil sie sich kürzlich rassistisch geäußert hat? Wo sind hier die Grenzen und wenn ja warum?
 
 
 #### Kunst vs. Political Correctness
