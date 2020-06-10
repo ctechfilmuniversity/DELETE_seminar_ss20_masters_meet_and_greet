@@ -74,7 +74,7 @@ Hier eine Auswahl an möglichen Themen für Eure Gespräche. Die Themen und Frag
 
 #### Käufliche Kunst?
 
-In der Kunstszene herrscht bei Zeiten unterschwellig die Annahme, dass nur unabhängige Projekte, frei von jeglichen technischen oder ästhetischen Anforderungen und Kunden-Wünschen "wahre" Kunst ist. Stimmt das? Ist kommerziell erfolgreiche Kunst, schlechtere Kunst und wenn ja, warum? Mit kommerziell erfolgreich meine ich hier nicht die paar wenigen super-Künstler wie Gerhard Richter, Neo Rauch oder Banksy, sondern Künstler*innen, die z.B. ihre Werke für Banken entwickeln, etc. Wo ist die Grenze zwischen Kunst und Kommerz? Warum werden Werke, die der Masse gefallen, wie zum Beispiel Musicals oder Computer Spiele schnell als wenig künstlerisch abgetan? Ist es nicht eine Kunst so vielen Menschen zu gefallen?
+In der Kunstszene herrscht bei Zeiten unterschwellig die Annahme, dass nur unabhängige Projekte, frei von jeglichen technischen oder ästhetischen Anforderungen und Kunden-Wünschen "wahre" Kunst ist. Stimmt das? Ist kommerziell erfolgreiche Kunst, schlechtere Kunst und wenn ja, warum? Mit kommerziell erfolgreich meine ich hier nicht die paar wenigen super-Künstler wie Gerhard Richter, Neo Rauch oder Banksy, sondern Künstler\*innen, die z.B. ihre Werke für die Gebäude von Firmen entwickeln, etc. Wo ist die Grenze zwischen Kunst und Kommerz? Warum werden Werke, die der Masse gefallen, wie zum Beispiel Musicals oder Computer Spiele schnell als wenig künstlerisch abgetan? Ist es nicht eine Kunst so vielen Menschen zu gefallen?
 
 #### Kunst und Social Media?
 
