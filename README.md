@@ -70,7 +70,7 @@ Ihr könnt auch gerne die Fragen der letzten Wochen in dieser Woche wieder aufgr
 
 ### 10.06.2020
 
-Hier eine Auswahl an möglichen Themen für Eure Gespräche.
+Hier eine Auswahl an möglichen Themen für Eure Gespräche. Die Themen und Fragen sind nur als Denkanstöße gemeint. Es kann gut sein, dass die Fragen so keinen Sinn machen, Äpfel mit Birnen vergleichen, etc. Macht daraus, was Ihr möchtet.
 
 #### Käufliche Kunst?
 
