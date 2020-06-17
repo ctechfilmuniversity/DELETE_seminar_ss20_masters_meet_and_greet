@@ -102,7 +102,7 @@ Welche Gefahren siehst Du in den aktuellen Trends? Welche Entwicklungen müssen 
 
 #### AI und Kunst
 
-Welchen Einfluss wird AI auf die Erstellung von Kunst nehmen? Welchen Einfluss wird AI auf unsere Wahrnehmung von Kunst nehmen? Welche Rolle wir ein*e menschlich*e Künstler*in mit AI basierten Tools in Zukunft einnehmen?
+Welchen Einfluss wird AI auf die Erstellung von Kunst nehmen? Welchen Einfluss wird AI auf unsere Wahrnehmung von Kunst nehmen? Welche Rolle werden menschliche Künstler*innen mit AI basierten Tools in Zukunft einnehmen?
 
 #### Data Tracking
 
