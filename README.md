@@ -94,7 +94,7 @@ Unserer Gesellschaft legt immer mehr Wert auf political correctness (Duden: Eins
 
 #### Einfluss Moderner Technologien
 
-Für welche Technologieentwicklung interessierst Du Dich am meisten (Mobile devices, XR, AI, wearable devices, holograms, etc. etc.) und warum? Welche der aktuellen Tendenzen, denkst Du, wird in der Zukunft am einflussreichsten? Wie wird sie unser Leben und unsere Gesellschaft verändern?
+Für welche Technologieentwicklung interessierst Du Dich am meisten (Mobile devices, Internet, XR, AI, wearable devices, holograms, Social Media, etc. etc.) und warum? Welche der aktuellen Tendenzen, denkst Du, wird in der Zukunft am einflussreichsten? Wie wird sie unser Leben und unsere Gesellschaft verändern?
 
 #### Gefahren in aktuellen Trends
 
