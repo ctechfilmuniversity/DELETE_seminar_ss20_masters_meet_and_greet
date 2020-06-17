@@ -90,7 +90,23 @@ Kann und darf man ein Kunstwerk von seine\*r Erschaffer\*in trennen? Immer mehr 
 Unserer Gesellschaft legt immer mehr Wert auf political correctness (Duden: Einstellung, die alle Ausdrucksweisen und Handlungen ablehnt, durch die jemand aufgrund seiner ethnischen Herkunft, seines Geschlechts, seiner Zugehörigkeit zu einer bestimmten sozialen Schicht, seiner körperlichen oder geistigen Behinderung oder sexuellen Neigung diskriminiert wird) in unserem alltäglichen Verhalten. Wie weit sollten diese Verhaltensweisen in der Kunst internalisiert werden? Wie weit darf man mit Kunst gehen?
 
 
+### 17.06.2020
 
+#### Einfluss Moderner Technologien
+
+Für welche Technologieentwicklung interessierst Du Dich am meisten (Mobile devices, XR, AI, wearable devices, holograms, etc. etc.) und warum? Welche der aktuellen Tendenzen, denkst Du, wird in der Zukunft am einflussreichsten? Wie wird sie unser Leben und unsere Gesellschaft verändern?
+
+#### Gefahren in aktuellen Trends
+
+Welche Gefahren siehst Du in den aktuellen Trends? Welche Entwicklungen müssen reguliert, gestoppt oder in irgendeiner Form beeinflusst werden?
+
+#### AI und Kunst
+
+Welchen Einfluss wird AI auf die Erstellung von Kunst nehmen? Welchen Einfluss wird AI auf unsere Wahrnehmung von Kunst nehmen? Welche Rolle wir ein*e menschlich*e Künstler*in mit AI basierten Tools in Zukunft einnehmen?
+
+#### Data Tracking
+
+Warum haben wir so viel Angst vor dem Tracking unserer Daten? Was kann hier bei Missbrauch passieren? Wie passt es zusammen, dass man (bzw. einige) alles von sich selbst auf Facebook preisgeben, aber eine personalisierte z.B. Corona-App vollkommen ausgeschlossen ist?
 
 
 
