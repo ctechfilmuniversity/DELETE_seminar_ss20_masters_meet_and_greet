@@ -109,5 +109,17 @@ Welchen Einfluss wird AI auf die Erstellung von Kunst nehmen? Welchen Einfluss w
 Warum haben wir so viel Angst vor dem Tracking unserer Daten? Was kann hier bei Missbrauch passieren? Wie passt es zusammen, dass man (bzw. einige) alles von sich selbst auf Facebook preisgeben, aber eine personalisierte z.B. Corona-App vollkommen ausgeschlossen ist?
 
 
+### 01.07.2020
 
+#### Leben nach der Uni
+
+Wo seht Ihr Euch nach dem Ende Eures Studiums? Welche Art von Job könntet Ihr Euch vorstellen? Was wären Eure Traumjobs?
+
+#### Arbeitsbedingungen
+
+Welche Arbeitsbedingungen (Anstellung, Freelance, viele Arbeitsstunden, wenig Arbeitsstunden, Verantwortung, Einfluss, Status, Gestaltungsfreiheit, Homeoffice, Catering, Team, Atmosphäre, etc.) stellt Ihr Euch vor? Was wären für Euch ideal Bedingungen, was no-gos? Wie glaubt Ihr wird sich die Arbeitswelt entwickeln? Wie sehen die Arbeitsbedingungen der Zukunft aus?
+
+#### Geld
+
+Welche Rolle spielt ein hohes Gehalt für Euch? Inwieweit beeinflusst Geld sowohl die eigene Lebensqualität als auch das individuelle Gefühl des "glücklich seins" (ich persönlich bin kein Fan dieses Ausdrucks, aber Ihr wisst hoffentlich ungefähr was gemeint ist). Wieviel Gehalt ist im Minimum nötig? Für welche Ausgaben?
 
