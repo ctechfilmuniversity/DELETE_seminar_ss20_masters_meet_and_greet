@@ -121,5 +121,5 @@ Welche Arbeitsbedingungen (Anstellung, Freelance, viele Arbeitsstunden, wenig Ar
 
 #### Geld
 
-Welche Rolle spielt ein hohes Gehalt für Euch? Inwieweit beeinflusst Geld sowohl die eigene Lebensqualität als auch das individuelle Gefühl des "glücklich seins" (ich persönlich bin kein Fan dieses Ausdrucks, aber Ihr wisst hoffentlich ungefähr was gemeint ist). Wieviel Gehalt ist im Minimum nötig? Für welche Ausgaben?
+Welche Rolle spielt ein Gehalt für Euch? Inwieweit beeinflusst Geld sowohl die eigene Lebensqualität als auch das individuelle Gefühl des "glücklich seins" (ich persönlich bin kein Fan dieses Ausdrucks, aber Ihr wisst hoffentlich ungefähr was gemeint ist). Wieviel Gehalt ist im Minimum nötig? Für welche Ausgaben?
 
