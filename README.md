@@ -117,7 +117,7 @@ Wo seht Ihr Euch nach dem Ende Eures Studiums? Welche Art von Job könntet Ihr E
 
 #### Arbeitsbedingungen
 
-Welche Arbeitsbedingungen (Anstellung, Freelance, viele Arbeitsstunden, wenig Arbeitsstunden, Verantwortung, Einfluss, Status, Gestaltungsfreiheit, Homeoffice, Catering, Team, Atmosphäre, etc.) stellt Ihr Euch vor? Was wären für Euch ideal Bedingungen, was no-gos? Wie glaubt Ihr wird sich die Arbeitswelt entwickeln? Wie sehen die Arbeitsbedingungen der Zukunft aus?
+Welche Arbeitsbedingungen (Anstellung, Freelance, viele Arbeitsstunden, wenig Arbeitsstunden, Verantwortung, Einfluss, Status, Gestaltungsfreiheit, Homeoffice, Catering, Team, Atmosphäre, etc.) stellt Ihr Euch vor? Was wären für Euch ideale Bedingungen, was no-gos? Wie glaubt Ihr wird sich die Arbeitswelt entwickeln? Wie sehen die Arbeitsbedingungen der Zukunft aus?
 
 #### Geld
 
